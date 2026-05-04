@@ -1,1 +1,1 @@
-# solo-travel-society-linkedin-group
+# Solo Travel Society LinkedIn Group
